@@ -1,4 +1,4 @@
-# Spotify MOD APK v9.2.46.591 (Premium Unlocked, No Ads) Latest 2025
+# Spotify Premium MOD APK v9.2.46.591 (Premium Unlocked, No Ads) Latest 2025
 
 ## Download Here: [Spotify MOD APK](https://apkbros.com/spotify-mod-apk/)
 
